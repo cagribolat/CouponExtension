@@ -8,3 +8,4 @@ ________________________________________________________________________________
 When you activate the extension, you will be automatically redirected to iDownloadCoupon.com. 
 This platform offers you advantages at free or discounted prices. 
 Seize the opportunities right now.
+![Uploading screencapture-idownloadcoupon-2023-11-16-17_00_38.png…]()
